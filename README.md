@@ -76,3 +76,52 @@ https://t.me/memes_prog - it memes
 
 https://t.me/itchannels_telegram - it telegram list
 
+Vk groups / вк ит  группы 
+
+https://vk.com/mashinnoe_obuchenie_ai_big_data 
+
+https://vk.com/python_django_programirovanie 
+
+https://vk.com/prorobot_ru robots 
+
+https://vk.com/javascript_forum 
+
+https://vk.com/devhash 
+
+https://vk.com/cpp_hub 
+
+https://vk.com/hero.develop 
+
+https://vk.com/kali_linux_backtrack 
+
+https://vk.com/gophernews 
+
+https://vk.com/gogolang 
+
+https://vk.com/artificialintelligenceai 
+
+https://vk.com/neuralnetworksai 
+
+https://vk.com/big_dataru 
+
+https://vk.com/js_hub 
+
+https://vk.com/phpyii 
+
+https://vk.com/htmlcsspsd 
+
+https://vk.com/iosadroiddevs 
+
+https://vk.com/html5js 
+
+https://vk.com/it_rabota_itwork
+
+https://vk.com/tensorflowblog 
+
+https://vk.com/python_forum 
+
+https://vk.com/reactjs 
+
+https://vk.com/php_pmapi 
+
+https://vk.com/html_hub 
